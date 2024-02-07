@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LuciGotRizz.
+- 👀 I’m interested in art.
+- 😄 Pronouns: she/her.
+- ⚡ Fun fact: I made a webpage for hazbin hotel.
